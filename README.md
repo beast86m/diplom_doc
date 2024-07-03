@@ -2,7 +2,8 @@
 
 **Задание 1**
 
-![image](https://github.com/beast86m/diplom_doc/assets/47268167/e3f7804a-1680-4aea-b5b3-3d9192bb9fae)
+![image](https://github.com/beast86m/diplom_doc/assets/47268167/11109121-2f06-4b35-88e2-0a8eacfde31c)
+
 
 
 **Задание 2**
